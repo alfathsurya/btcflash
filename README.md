@@ -36,4 +36,4 @@
 
 ### Contact US: 
 
-[+917063839287](https://wa.me/917063839287) (WhatsApp) or Telegram: https://telegram.me/btcflashingtools or Website: https://btcflash.trade/
+[+917063839287](https://wa.me/917063839287) (WhatsApp) or Telegram: https://telegram.me/btcflashingtools / https://t.me/btcflashingtools or Website: https://btcflash.trade/
